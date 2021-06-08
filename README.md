@@ -1,1 +1,1 @@
-Time is of the essence
+Time is of the essence, Essentially
